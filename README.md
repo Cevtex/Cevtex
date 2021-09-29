@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Cevtex also known as vex
+- 👀 I’m interested in rocketleague
+- 🌱 i am excited to code again
+- 📫 Vextea@outlook.com
